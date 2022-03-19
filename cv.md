@@ -1,14 +1,11 @@
 # **Derecha Irina**
 ## *Contacts*
-###### -----------
 - **Phone:** +375(33)63-79-477 
 - **Telegram:** @Thumbe_rina 
 - **Email:** irisha.dieriecha@mail.ru 
 ## *Education*
-###### -----------
 Belarusian State University || applied informatics (web design and computer design) 2019-2023
 ## *About me*
-###### -----------
 I love setting goals and achieving them. I don't leave a job without finishing it. I try to always do everything on time.
 ### My main qualities
 +	Creative spirit 
